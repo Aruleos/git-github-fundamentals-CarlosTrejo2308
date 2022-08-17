@@ -1,0 +1,1 @@
+Goog evenning everyone, my name is Carlos Leos, I'am 27 years old and I'm really glad to meet you this semester and to my teacher, hope I could make it this time. So thanks and have a nice day.
